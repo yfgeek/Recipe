@@ -12,7 +12,7 @@
 * Ginger, cut into slices
 * Sugar
 * Salt
-* Pixian County Bean Sauce (IMPORTANT Chinese name:郫县豆瓣酱)
+* Pixian County Broad Bean Paste (IMPORTANT Chinese name:郫县豆瓣酱)
 * Lao Gan Ma Chili Crisp Sauce (optional, Chinese name:老干妈辣椒酱, the logo of this is an old lady )
 * Chinese Five Spice powder (optional, if you have it will taste better)
 
@@ -43,7 +43,7 @@
 
 <img src="images/1/IMG_0606.JPG" width="85%" height="85%" />
 
-8.Add 3teaspoon Pixian County Bean Sauce, 2teaspoon Lao Gan Ma Chili Crisp Sauce (optional),1teaspoon Chinese Five Spice powder (optional). Stir fry them for 1 minute.
+8.Add 3teaspoon Pixian County Broad Bean Paste, 2teaspoon Lao Gan Ma Chili Crisp Sauce (optional),1teaspoon Chinese Five Spice powder (optional). Stir fry them for 1 minute.
 
 <img src="images/1/IMG_0607.JPG" width="85%" height="85%" />
 
@@ -66,6 +66,6 @@ Enjoy it.
 
 # Appendix
 
-Pixian County Bean Sauce
+Pixian County Broad Bean Paste
 
 <img src="images/1/IMG_0594.JPG" width="85%" height="85%" />
