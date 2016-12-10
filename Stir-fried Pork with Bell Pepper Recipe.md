@@ -1,4 +1,4 @@
-#  Stir-fried Pork with Bell Pepper Recipe By Ivan
+#  Stir-fried Pork with Bell Pepper Recipe by Ivan
 
 ![](images/1/IMG_0614.JPG)
 
