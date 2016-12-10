@@ -1,22 +1,71 @@
 #  Stir-fried Pork with Bell Pepper Recipe By Ivan
 
+![](images/1/IMG_0614.JPG)
+
 ## Ingredients
-* Pork Belly, cut into bite-sized pieces
+* Pork Belly
 * Bell Peppers
-* 1tbsp Sunflower Oil
+* Sunflower Oil
 * Soy Sauce 
-* Leek
+* Leek, cut into slices
 * Garlic
-* Ginger, cut into pieces
+* Ginger, cut into slices
+* Sugar
+* Salt
 * Pixian County Bean Sauce (IMPORTANT Chinese name:郫县豆瓣酱)
-* Lao Gan Ma Chili Crisp Sauce(optional, Chinese name:老干妈辣椒酱, the logo of this is an old lady )
+* Lao Gan Ma Chili Crisp Sauce (optional, Chinese name:老干妈辣椒酱, the logo of this is an old lady )
 * Chinese Five Spice powder (optional, if you have it will taste better)
 
 ## Method
-1. Cut the leek, garlic and the ginger into slices and mixed them into a small bow
-2. Blanch the pork pieces in the boiling water and do so for 2 to 4 minutes
-3. Use chopsticks or forks to pick each pork pieces into a clean plate
-4. 
+1.Cut the leek, garlic and the ginger into slices and mixed them into a small bow
+
+![](images/1/IMG_0603.JPG)
+
+2.Cut the pork into bite-sized pieces and put them into another small bow.
+
+![](images/1/IMG_0598.JPG)
+
+3.Cut the bell pepper into slices
+
+![](images/1/IMG_0599.JPG)
+
+4.Blanch the pork pieces in the boiling water and do so for 2 to 4 minutes
+
+5.Use chopsticks or forks(if you use forks, DO NOT CUT THE PORK INTO VERY THINY PIECES) to pick each pork pieces into a clean plate
+
+![](images/1/IMG_0600.JPG)
+
+6.Heat the oil in a wok over a high heat.
+
+![](images/1/IMG_0604.JPG)
+
+7.Add the leak slices, ginger slices, garlic powder on the oil. Stir fry them for 30 seconds.
+
+![](images/1/IMG_0606.JPG)
+
+8.Add 3teaspoon Pixian County Bean Sauce, 2teaspoon Lao Gan Ma Chili Crisp Sauce (optional),1teaspoon Chinese Five Spice powder (optional). Stir fry them for 1 minute.
+
+![](images/1/IMG_0607.JPG)
+
+9.Add the bell pepper slices into the wok and then stir fry to mix them for 1 minute. Then add the pork slices into the wok.
+
+![](images/1/IMG_0609.JPG)
+
+10.Add the 2teaspoon soy sauce, 2teaspoon sugar and 0.1teaspoon salt into the wok and then stir fry them for 1 minute. 
+
+11.Add a little water to the wok.
+
+![](images/1/IMG_0611.JPG)
+
+12.Turn off the power till the evaporation of water and pour them into the bowl.
+
+![](images/1/IMG_0614.JPG)
+
+Enjoy it.
 
 
+# Appendix
 
+Pixian County Bean Sauce
+
+![](images/1/IMG_0594.JPG)
