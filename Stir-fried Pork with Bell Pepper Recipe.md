@@ -57,7 +57,7 @@
 
 <img src="images/1/IMG_0611.JPG" width="85%" height="85%" />
 
-12.Turn off the power till the evaporation of water and pour them into the bowl.
+12.Turn off the power till the evaporation of water and pour them into the dish.
 
 <img src="images/1/IMG_0614.JPG" width="85%" height="85%" />
 
