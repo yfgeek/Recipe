@@ -8,7 +8,7 @@
 * Sunflower Oil
 * Soy Sauce 
 * Leek, cut into slices
-* Garlic
+* Garlic slices/ Garlic powder
 * Ginger, cut into slices
 * Sugar
 * Salt
