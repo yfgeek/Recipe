@@ -39,7 +39,7 @@
 
 <img src="images/1/IMG_0604.JPG" width="85%" height="85%" />
 
-7.Add the leak slices, ginger slices, garlic powder on the oil. Stir fry them for 30 seconds.
+7.Add the leek slices, ginger slices, garlic powder on the oil. Stir fry them for 30 seconds.
 
 <img src="images/1/IMG_0606.JPG" width="85%" height="85%" />
 
