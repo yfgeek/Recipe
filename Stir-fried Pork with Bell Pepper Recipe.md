@@ -51,7 +51,7 @@
 
 <img src="images/1/IMG_0609.JPG" width="85%" height="85%" />
 
-10.Add **2teaspoon soy sauce**, 2teaspoon sugar and 0.5teaspoon salt into the wok and then stir fry them for 1 minute. 
+10.Add **3teaspoon soy sauce**, 2teaspoon sugar and 0.5teaspoon salt into the wok and then stir fry them for 1 minute. 
 
 11.Add a little water to the wok.
 
